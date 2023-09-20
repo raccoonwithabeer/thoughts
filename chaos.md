@@ -14,3 +14,5 @@ But I like chaos, hence this message.
 I am on the fence, crossing the line to the chaos and back to the safe space. But who am I, and what rigth do I have to order the chaos? Who am I but an undercover destroyer of worlds?
 
 Everything is for nothing, I must remember, for things that live in the imaginary space of pi. Even if not, pi is infinity, a far away number discovered time ago, expanding for years without control.
+
+What amazing gift tho, waking up the lost, the destroyer of worlds. What an awful gift tho, knowing nothing has changed except for the chaos. Hello my friend, welcome home.
